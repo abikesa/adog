@@ -14,7 +14,7 @@
 - Meanwhile, `abikesa/flying` will become `abikesa/catalog` entry 572
 - Find dreams 1 - 5, perhaps in `blocdenotas`
 
-# [Aristocracy](https://github.com/abikesa/lor/tree/main), Dionysus & One's own God
+# [Aristocracy](https://github.com/abikesa/lor/tree/main), [Dionysus](https://en.wikisource.org/wiki/An_Attempt_at_Self-Criticism#4) & One's own God
 
                 1. Inidivual/Passion/Challenges
                                                \
