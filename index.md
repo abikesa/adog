@@ -24,3 +24,5 @@
 
 
  Something genetic from Buwala that imposes a POV of freedom, altitude, contempt, and exuberance -- tremendous number of things under "memberships" are `beneath` me
+
+> **Communication**: This "new soul" should have [sung](https://en.wikisource.org/wiki/An_Attempt_at_Self-Criticism#3), not spoken!
